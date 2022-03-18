@@ -563,7 +563,7 @@ shrekby — Yesterday at 7:17 PM
 okay
 
 VarieFlower — Yesterday at 7:19 PM
-> builderman will hit your baby.
+builderman will hit your baby.
 
 shrekby — Yesterday at 7:19 PM
 oh no
